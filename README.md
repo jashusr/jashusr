@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jashusr
+- 👋 Hi, I’m @JashwanthSR
 - 👀 I’m interested in learning new things related to computer and i love gaming
 - 🌱 I’m currently learning hacking,gaming,12(commerce)
 - 😎 I have a skill of learning things real quick 
