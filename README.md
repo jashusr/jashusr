@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @JashwanthSR
-- 👀 I’m interested in learning new things related to computer and i love gaming
-- 🌱 I’m currently learning hacking,gaming,12(commerce)
-- 😎 I have a skill of learning things real quick 
+- 👋 Hi, I’m JashwanthSR
+- 👀 I’m interested in learning new things related to computers and I love gaming and Programming.
+- 🌱 I’m currently learning Game Design and Development
+- 😎 I have the skill of learning things really quick and adapt to the changes.
 - 📫 How to reach me 
       - INSTAGRAM - https://www.instagram.com/_jsr_reddy/
       - DISCORD - jsr#1253
