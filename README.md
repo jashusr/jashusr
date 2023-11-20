@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning Game Design and Development
 - 😎 I have the skill of learning things really quick and adapt to the changes.
 - 📫 How to reach me 
-      - INSTAGRAM - https://www.instagram.com/_jsr_reddy/
+      - INSTAGRAM - https://www.instagram.com/jsr_reddy_/
       - DISCORD - jsr#1253
